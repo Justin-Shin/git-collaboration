@@ -1,7 +1,7 @@
 The Prickly Polar Bear and the Noisy Luau
 
 "Humph," Paul said.  "That party is much too loud."
-
+smurfing smurfs!
 Grumpily, he paced in his room, wishing the neighbors would quiet down.
 
 "I'm trying to work here," he said to no-one in particular.
